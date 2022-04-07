@@ -14,6 +14,14 @@
 
 ## Reasons to study Computer Science
 
-1. Money $
+1. Money $$$
 2. ?
 
+## Daily Schedule
+**8am-2pm** Go to class
+
+**2pm-6pm** Mental Breakdown
+
+**6pm-4am** Homework
+
+**4am-8am** Sleep
