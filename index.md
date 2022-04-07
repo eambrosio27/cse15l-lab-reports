@@ -8,7 +8,7 @@
 [Link](https://www.wikihow.com/Drop-Out-of-College)
 > Disclaimer: this is a joke
 
-<img src= "https://images.app.goo.gl/bq2eQqXi7bgsewiY6"
+![Image](https://64.media.tumblr.com/805cea96d6e15b50db78b1f45133a72e/1b0039bb91761b56-3e/s1280x1920/fca8ab133abeefd9c8ba0bf80d30b6b954532bfe.jpg)
 
 ***
 
